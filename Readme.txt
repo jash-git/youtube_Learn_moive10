@@ -65,7 +65,10 @@ Syringe Hacks
 		https://www.youtube.com/watch?v=bxIrnVof43w
 		
 	5件驚人的紙板東西，你可以在家裡做
-		https://www.youtube.com/watch?v=dKBk4Bkxpr4		
+		https://www.youtube.com/watch?v=dKBk4Bkxpr4
+
+	How to Build Coca Cola Spy Gun
+		https://www.youtube.com/watch?v=1FeMYcCk_t8
 	
 	
 Hacks Battery
