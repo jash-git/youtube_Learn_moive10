@@ -116,3 +116,6 @@ Hacks Battery
 	
 	5 Survival Car Battery Life Hacks
 		https://www.youtube.com/watch?v=CmxR1V5nrCk
+
+		
+Mini Weapon Pocket Gun from Pencil	
