@@ -31,7 +31,7 @@ Hacks DC Motor
 
 		
 Syringe Hacks
-	4 Awesome Syringe Life Hacks
+	4 Awesome Syringe Life Hacks[針筒+刀片=簡易膠帶台,針筒變飛針(攻擊武器),針筒變出國牙膏收納器,針筒+熱熔膠條=彈弓]
 		https://www.youtube.com/watch?v=2sxIUXEVCJc
 		
 	13 Awesome Syringe Life Hacks
