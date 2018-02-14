@@ -34,7 +34,7 @@ Syringe Hacks
 	4 Awesome Syringe Life Hacks[針筒+刀片=簡易膠帶台,針筒變飛針(攻擊武器),針筒變出國牙膏收納器,針筒+熱熔膠條=彈弓]
 		https://www.youtube.com/watch?v=2sxIUXEVCJc
 		
-	13 Awesome Syringe Life Hacks
+	13 Awesome Syringe Life Hacks[針筒+膠帶=真空袋,針筒取出蘋果梗,針筒變噴燈,針筒變手機伸縮架,針筒+寶特瓶=戶外簡易手龍頭,針筒針+9V電池=木頭燒刻筆,針筒變防水收納瓶]
 		https://www.youtube.com/watch?v=OgMfjeuxAUg
 
 	4 Awesome Life Hacks for Syringe	
