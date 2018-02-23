@@ -40,13 +40,13 @@ Syringe Hacks
 	4 Awesome Life Hacks for Syringe[針筒變油性筆筆筒,針筒變太短鉛筆筆桿]
 		https://www.youtube.com/watch?v=YrUudPak0ZE
 		
-	3 Amazing Syringe Life Hacks
+	3 Amazing Syringe Life Hacks[針筒+瓦斯=噴燈,針筒+氣球=彈弓,針筒+寶特瓶=簡易水龍頭]
 		https://www.youtube.com/watch?v=iGPMZ7N1bqs
 		
 	Top 5 Best Life Hacks for Syringe - Syringe Life Hacks
 		https://www.youtube.com/watch?v=N8R8NTwuCI0
 		
-	3 Amazing Syringe Life Hacks
+	3 Amazing Syringe Life Hacks01
 		https://www.youtube.com/watch?v=ci9Kk03y7kI
 		
 	2 Awesome ideas | Brilliant ideas
