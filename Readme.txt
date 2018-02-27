@@ -46,7 +46,7 @@ Syringe Hacks
 	Top 5 Best Life Hacks for Syringe - Syringe Life Hacks[針筒變戶外火柴防水收納瓶,簡易防盜鈴,彈弓]
 		https://www.youtube.com/watch?v=N8R8NTwuCI0
 		
-	3 Amazing Syringe Life Hacks01
+	3 Amazing Syringe Life Hacks01[針筒+馬達=電動打氣機,針筒+馬達+打火機=電動磨刀器]
 		https://www.youtube.com/watch?v=ci9Kk03y7kI
 		
 	2 Awesome ideas | Brilliant ideas
