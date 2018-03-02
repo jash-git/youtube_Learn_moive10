@@ -52,7 +52,7 @@ Syringe Hacks
 	2 Awesome ideas | Brilliant ideas[無火點菸器，熱熔膠螢光棒]
 		https://www.youtube.com/watch?v=lzB1m6DIaCA
 		
-	how to make mini bike pump - amazing life hacks with syringe
+	how to make mini bike pump - amazing life hacks with syringe[針筒手動打氣工具]
 		https://www.youtube.com/watch?v=mdBAFx8PzTs
 		
 	Hydraulics Lift Made From Syringe
