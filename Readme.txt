@@ -49,7 +49,7 @@ Syringe Hacks
 	3 Amazing Syringe Life Hacks01[針筒+馬達=電動打氣機,針筒+馬達+打火機=電動磨刀器]
 		https://www.youtube.com/watch?v=ci9Kk03y7kI
 		
-	2 Awesome ideas | Brilliant ideas[無火點菸器，熱熔膠螢光棒]
+	2 Awesome ideas | Brilliant ideas[無火點菸器,熱熔膠螢光棒]
 		https://www.youtube.com/watch?v=lzB1m6DIaCA
 		
 	how to make mini bike pump - amazing life hacks with syringe[針筒手動打氣工具]
@@ -61,7 +61,7 @@ Syringe Hacks
 	How to Make Coke Fanta Sprite Soda Dispenser Machine Using Syringe Life Hack[針筒飲料機]
 		https://www.youtube.com/watch?v=T45RfpJCjy0
 		
-	Top Six Best Life Hacks for Syringe - Syringe Life Hacks
+	Top Six Best Life Hacks for Syringe - Syringe Life Hacks[針筒氣球打氣機]
 		https://www.youtube.com/watch?v=bxIrnVof43w
 		
 	5件驚人的紙板東西，你可以在家裡做
